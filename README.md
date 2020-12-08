@@ -9,11 +9,3 @@ aasdf
 asdf
 asdffdsaf
 asdfasdf
-asdfasdf
-ffff
-asdfsa
-bum bum bum
-asdf
-asdf
-sdfsdafasd
-asdfsdaf
